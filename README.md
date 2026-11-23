@@ -1,16 +1,13 @@
-## Hi there 👋
+Vietkit Home là thương hiệu chuyên thiết kế thi công nội thất trọn gói hàng đầu tại Việt Nam. Đội ngũ KTS; thợ thi công trên 10 năm kinh nghiệm, luôn mang đến cho chủ đầu tư không gian sang trọng, ấn tượng nhất.
 
-<!--
-**vietkithomevn/vietkithomevn** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+- Phone: 0865.283.168
 
-Here are some ideas to get you started:
+- Địa chỉ: 72a Hồng Tiến Long Biên Hà Nội
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+- Hastag, tag: #VietkitHome #ThiCongNoiThat #NoiThatHaNoi #TuBepInox
+
+- Website: https://vietkithome.vn/
+
+https://www.pinterest.com/vietkithomevn/
+
+https://vimeo.com/vietkithomevn
